@@ -1,2 +1,1 @@
- <div id="shortcuts"><div class='title'> Snabbval</div></div></section><h2>Vad är ett snabblån?</h2><p><a href="https://www.xn--snabbalnen-75a.se/">Snabblån</a> eller <a href="https://www.xn--smsln-snabbt-wcb.se/">smslån</a> är som namnet avslöjar ett lån du kan ansöka om snabbt och kan användas som en tillfällig lösning för att låna en mindre summa pengar. Det ska dock inte betraktas som en långvarig lösning, eftersom pengarna så småningom ska betalas tillbaka, inklusive ränta och avgifter.</p><p>Eftersom snabblån är ett mindre lån innebär det inte så stora risker för långivaren. Därför kan man många gånger <a href="https://www.xn--lna-pengar-direkt-8qb.se/">låna pengar direkt</a>
-  
+
